@@ -2,6 +2,7 @@
 
 
 **Blackholes are cool but did you know this about black holes.** black holes suck in **ANYTHING** even light cant escape.
+Honestly thats pretty cool but also **BLACKHOLES**
 
 
 
