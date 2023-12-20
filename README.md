@@ -2,7 +2,7 @@
 
 
 **Blackholes are cool but did you know this about black holes.** black holes suck in **ANYTHING** even light cant escape.
-Honestly thats pretty cool but also **BLACKHOLES** Do you ever wonder about the secrets hidden in space? One of the most mysterious things out there is a black hole. Imagine a place in space where **everything gets sucked in** and nothing not even light, can escape. Thats a black hole. But don't worry they are not like the holes in your socks they are much, much bigger.
+Honestly thats pretty cool but also **BLACKHOLES** Do you ever wonder about the secrets hidden in space? One of the most mysterious things out there is a black hole. Imagine a place in space where **everything gets sucked in** and nothing not even light, can escape. Thats a black hole. But don't worry they are not like the holes in your socks they are much, much bigger. Black holes are like vacuum cleaners. They are formed when a massive star runs out of fuel and collapses under its gravity. When this happens it becomes so dense that nothing can escape its powerful pull. Even if you light jets out into the blackhole, **the light will get pulled into the black hole**. Scientists call the border of a black hole the "event horizon," and once something crosses this line, it's gone forever.
 
 
 
